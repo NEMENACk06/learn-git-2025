@@ -1,1 +1,2 @@
-Nisit Noonuan
+Nisit Noonuan (Nack)
+Silpakorn University
